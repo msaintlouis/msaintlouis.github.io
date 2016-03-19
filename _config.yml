@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://msaintlouis.github.io
+title: M. Saint Louis
+tagline: never forget a towel
+description: a simple place for my complex thoughts
+paginate: 5
