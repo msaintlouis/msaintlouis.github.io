@@ -1,0 +1,32 @@
+---
+published: true
+title: my first mid-life crisis 
+layout: post
+tags: [life, past, stress]
+categories: [journal]
+---
+Shortly after my 18th birthday I left the United States and headed to my mother’s homeland of the Philippines. It was my first visit. The plan was to tour and visit my blood relatives and the relatives of my Filipino stepmother. It ended up that I was going to attend college as well. I was enrolled in the very same college, St. Louis College of San Fernando, La Union that my stepmother graduated from–though I did not know it at the time.
+
+I had good times. I met good people. It should have been a completely wonderful experience, yet it wasn’t. I got in a lot of disagreements with people. There were some instances of physical violence involving bamboo sticks and shovels. Due to my large physique and physical condition at the time, and the raging hormone driven anger I could call upon at any time–most people didn’t want to get into a physical altercation.
+
+The arguments and bickering with my step-family were unavoidable. I had nowhere else to go. I could go into hours of detail but I won’t. Suffice it to say they did not treat me as I believe I should have. They even got monthly money from my father and I was living poorer than some of the natives in the area I was in. It was really quite embarrassing. Everyone assumed as an American citizen I had money. I should have had money. Even something so small as $20 a week could have supported a fun lifestyle there for me. I didn’t even get that. So begins the roots of my anger.
+
+So I’m here going to school, having no allowance, not even the amount I would get home in the U.S. and I’m completely miserable. I was living with one of my stepmother’s brother and sister and the sister was a fucking pervert screwing around with her own nephew. Incestuous relations where I was living. Not the hot kind either like a well-made smut video. Old ass lady and ugly kid. I take out my frustrations playing basketball against the local kids. I kick the shit out of all of them. It gets boring. I gamble playing sometimes 1 vs 5 and I still won. They get angry at me for being cocky but that wasn’t the thing. Selling yourself short and your skills is not being humble, it’s fake.
+
+So I first move next door to another uncle. I’m not getting money for food and school and I start to get upset. So I go back to Makati after the semester was over. Hey fuck you and peace out. So same exact thing at the other home. They get my family’s money, they don’t take care of me properly. I should have been treated as an honored guest and respected–instead they acted as I was some sort of servant for them. Oh if only the Philippines had some better guest values like China, Japan and Korea. Again, I was completely miserable.
+
+Things came to a head faster because my stepmother’s family disapproved of my girlfriend. Here is the most unbelievable part. They didn’t approve because her and her family were poor. They were looked down for that and they just wouldn’t leave us alone. They made a huge scene telling me to go live with my girlfriend and her family and to get out of their house. They did this just because I spent time with her. It was an idle threat because they weren't going to get money if I wasn't living with them. 
+
+I’m stressed out now. Angry all the time surrounded by people not my family by blood or bond. The only ones I cared for were the young children in the household. Two cute toddler boys who brightened up the day of anyone. Completely fed up with all the bullshit I call home to my father and stepmother asking to get a plane ticket home. This cunt fucking bitch motherfucker stepmother tells me I’m 18 and to buy it myself. Are you fucking kidding me? They brought me here. At this point my passport was not even in my own fucking possession and somehow I get this response from this old whore who my father married. Now that I got that off my chest I’ll continue.
+
+So that caused even more problems where I was living. As if it was some sort of punishment they threatened to have me go live with my blood relatives, really, bitches? How is that a threat? I was sad to leave the boys but fuck the rest.
+
+I go to live with my blood uncle in Pampanga and I had the best fucking time of my life. There were some issues of course. Some cultural differences and arguments, but all in all it was a blast. I even reconnected with my mother at this time. Can you believe I went to a foreign country without even telling her?
+
+Anyway, remember how I said those fucks got money while taking care of me? They wouldn’t while I’m not there. Guess what happened. About 3-4 weeks go by and without even calling or getting in contact with anyone my stepmother’s family show up. They are telling me school is starting soon and let’s go back now. They did this like it’s no big deal and they actually believed I would go with them? Was it some favor? No, motherfuckers get the hell out of here. I’m with my actual family now. Well, I was a bit more tactful. I just told them I’m not going with you. They stared around stupidly for an hour or so before getting lost on their 3 hour drive back.
+
+After a while I wanted to leave. I had been in the Philippines 13 months straight. It’s been 17 years since I’ve been there and I really want to go back, but at that time it was time to get the fuck out. I don’t even think I had a valid visa. What the hell was I still here for? I threatened my father that I would deport myself and report my stepmother’s perverted family for holding my passport hostage. That worked so damn fast but my father didn't pay for the entire ticket. He made my mother pay for most of it and a condition was that I have to go live with her when I got back. I wasn't welcome in his home. This was all because of that bitch of a wife he had, my stepmother. She had just been waiting until I was 18 to get rid of me and the vacation to the Philippines was all a ploy on her part. I know it. 
+
+My journey as the kid of divorced parents continued as I was tossed between mother and father year after year. Not one of them ever wanted more custody of me or to make their turn longer. Not even when I was young boy of 7 years old. 
+
+The entire ordeal was the cause of my mid-life crisis. I thought I was going to go crazy every day. Feelings of Deja-vu compounded with anxiety and panic attacks made so many of my days and nights unbearable. I did manage to survive and get back to the U.S. but it was a fucking bitch. 
